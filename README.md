@@ -1,2 +1,2 @@
-# sappershianovlox67xd
-сапер 67
+# supper
+сапер
